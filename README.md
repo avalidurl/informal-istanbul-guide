@@ -1,12 +1,15 @@
-Gökhan's Informal Istanbul Guide
----
+# Musical & Performing Arts Venues
 
-[Musical & Performing Arts Venues](/TDuQg7ueRNKdQg4CeeE7QQ)
+Musical scene in Istanbul is rich in myriad versions from late night cool jazz to classical music brunches. It does not matter whether you are into IDM or EDM, during the high season, it’s hard to choose from all the fanfare. We’ll zoom in on the map, & list some of the easily accessible and rather well-known venues.
 
-[Modern & Contemporary Art Museums and Venues](/BoTOQNBeS_Snnnic2pnlVA)
-
-[Museums & Historical Landmarks](/JlgcQl6EQIywSuClodEJsA)
-
-[Vegan and Gluten-free Food Options](/mFk75o80R8m9vKbdjBZwOg)
-
-follow me [here](https://avalidurl.com).
+1. **[Nardis Jazz](https://maps.app.goo.gl/W4tuWWsZvkJYU6kb8)** is the one of most renowned clubs in not only Istanbul but across Eurasia, too. An all times favorite by expats, it’s 99% of the time brimming full house, & requires a rather afforable entry ticket which passes as a reservation. Doors open at 8 p.m., and should you like to be seated at rather a nice spot, it’s first-come-first-served basis. Perched a block under Galata Tower, it’s easily accessible.
+2. **[Salon IKSV](https://maps.app.goo.gl/GTHooNFpZN1gj6LPA)** is the performance venue at the Nejat Eczacıbaşı Building of Istanbul Culture and Arts Foundation (İKSV). It’s easily accessible right in front of the Şişhane metro gate—almost 5-min. away from the above-mentioned Nardis. Salon offers a rather variagated range of eclectic music tastes, & host contemporaneous artists from all over the globe.
+3. **[Klein Harbiye](https://maps.app.goo.gl/9PgMveGSG5DX7uzD7)** fills the scene as a generalist electronic music venue for those who are nostalgic for early 2000s ultimate Istanbulite electronic music scene that was sort of displaced from its İstiklâl Avenue stronghold towards rather outer districts. It is easily accessible on foot, or by bus, from the pop-up village, and towards the Devconnect Istanbul 2023 co-work venue.
+4. **[Atatürk Cultural Center (AKM)](https://akmistanbul.gov.tr/)** is the ultimate cultural center for which Istanbulite residents waited for about a decade after it went into a renovation process which witnessed its total rebuilding as a perfomance arts center. The shows are genre-rich from classical music gigs to operas. It’s right on the Taksim Square and easily accessible.
+5. **[Zorlu Performaning Arts Center](https://www.zorlupsm.com/en)** is the ultimate cultural hub in Istanbul nowadays that hosts a plethora of events from concerts in every genre to plays to sonic arts festivals. It houses venues such as Touché jazz club to Turkcell Stages, & the like. It is located a bit far but easily accessible via metro and other transportation types.
+6. **[Bova Jazz Club](https://maps.app.goo.gl/1iwKKWqRrQcq3HKF9)** is an alternative when places like Nardis or Touché at Zorlu are full house. You’ll encounter the same musicians overall, and it is a nice place ,too.
+7. **[YK Bomonti Ada](https://yapikredibomontiada.com/)** is an islet of restaurants, pubs, and clubs. One of Istanbul’s oldest performing arts venue Babylon has its quarters thereabouts. It would be wise to take a cab from Pera to Bomonti because of the non-grid blueprint of Feriköy-Bomonti line.
+8. **[Mini Müzikhol](https://www.timeout.com/istanbul/clubs/minimuzikhol)** is in Cihangir neighbourhood to which you can easily reach in 15-30 min. max. on foot. It is sort of a mainstreamish hipster-friendly eclectic venue.
+9. **[Akbank Sanat](https://www.akbanksanat.com/arama?tag=muzik)** is originally a multi-disciplinary artistic space but they host quality-end multi-genre music gigs, too. It is on the İstiklâl Avenue, and easy to access.
+10. **[UNIQ Istanbul](https://www.uniqistanbul.com/)** is located on the subway line in Maslak, Sarıyer and is easily accesible via the subway, and cabs. It is a large venue for multi-genre events where you can enjoy names such as ranging from Marcus Miller to Fazıl Say.
+11. **[NOH Radio Bar](https://www.instagram.com/nohradio/)** is a cool corner pub where DJs play live sets. Cool space, and it’s in Galatasaray. Easily accesible via İstiklâl Avenue.
