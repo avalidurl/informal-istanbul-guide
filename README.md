@@ -1,12 +1,17 @@
-Gökhan's Informal Istanbul Guide
----
+# Museums & Historical Landmarks
 
-[Musical & Performing Arts Venues](/TDuQg7ueRNKdQg4CeeE7QQ)
+*Ministry of Culture and Tourism offers [electronic ticketing](https://muze.gov.tr/MuseumPass) via their mobile application. Prices vary according to the scope of the pass. There is a price discreapancy among foreigner and local ticketing prices most of the time, please do check the details if you ever think you might need an e-ticket for either Istanbul or the rest of Türkiye*.
 
-[Modern & Contemporary Art Museums and Venues](/BoTOQNBeS_Snnnic2pnlVA)
+Below is rather a selection of either historical or popular landmarks, museums, and spots of attractions.
 
-[Museums & Historical Landmarks](/JlgcQl6EQIywSuClodEJsA)
-
-[Vegan and Gluten-free Food Options](/mFk75o80R8m9vKbdjBZwOg)
-
-follow me [here](https://avalidurl.com).
+1. **[Istanbul Archaeological Museums](https://muze.gen.tr/muze-detay/arkeoloji)** is an ecosystem of its own and there is usually a long queue at the entrance especially during off-days, and holidays. We do not think that a day will suffice an exploration. You’ll want to visit more than once. Located on the historical peninsula across Pera, you’ll either need a short public transportation via trams, or it might take about half an hour on foot. If you go by walking, make sure you stroll through [Gülhane Parkı](https://maps.app.goo.gl/2aAVyiYKvw12RsKU7).
+2. **[Topkapı Palace Museum](https://muze.gen.tr/muze-detay/topkapi)** was the the seraglio for the sultans of the Ottoman Empire, and it still stands to this day with a rich offering of historical artefacts, and a refreshing air with its garden. If the queue for the Archaeological Museums seem long, you can always walk for another 5 minutes, and you’ll find it at the spot.
+3. One of the eternal symbols of the city over a millennium, **[Hagia Sophia](https://maps.app.goo.gl/uLLdGopqYkteMCoq6)** today is used as a mosque, a place of worship. However, you can pay a visit to this splendid example of divine capabilities of human-made structures. It should not be mistaken for the [Hagia Sophia History Museum](https://muze.gov.tr/muze-detay?SectionId=YSM01&DistId=MRK).
+4. **[Hippodrome](https://www.tripadvisor.com/Attraction_Review-g293974-d294545-Reviews-Hippodrome-Istanbul.html)** is in fact a merged historical landmark with its environment. Laid over a rectangular opening in the heart of the peninsula near **[Sultanahmed Square](https://maps.app.goo.gl/6mcFFf92N12eTFqK6)**, it’s impossible to miss it. It is an open air museum to astounding works such as **[Obelisk of Theodosius](https://en.wikipedia.org/wiki/Obelisk_of_Theodosius)**.
+5. **[Süleymaniye Mosque](https://maps.app.goo.gl/MDMA6oLvnj4uihZq8)** was an Ottoman imperial mosque—one of the signatures of Mimar Sinan aka Sinan the Architect.
+6. Similarly, **[the Blue Mosque](https://maps.app.goo.gl/iMwrVvAQ3zzvEoK68)** is another architectural gem.
+7. **[Galata Tower](https://maps.app.goo.gl/2STPT2NXEqoueCN29)** is one of the symbols of Istanbul. It was a watchtower by the Genoese standing at the highest peak of once erect city walls that are no more.
+8. **[St. Anthony of Padua Church](https://maps.app.goo.gl/XZRdv8pEXSWz6CVp7)** is the largest Catholic church in Istanbul. Having a breath-takingly mesmerizing architecture of mundane silence and divine immanence, it also hosts a plethora of classical music gigs that not exclude special organ sessions. It’s a living monument for worshipping, and you can join public masses, too.
+9. **[Dolmabahçe Palace](https://maps.app.goo.gl/XaFuqbFQqUBHhRkX6)** was home to the late stage Ottoman Sultans, and also the Founder of the Turkish Republic Mustafa Kemal Atatürk. It is a must-experience. Easily accessibly on foot or via public transportation, you’ll also get to have some fresh Bosphorus air.
+10. **[Basilica Cistern](https://maps.app.goo.gl/GhjTKnzeC6aF3vAN8)** is the most famous of hundred of cisterns in Istanbul.
+11. **[The Cathedral of the Holy Spirit](https://maps.app.goo.gl/XK8koaPvZLzwqvzh7) is only two-minute walk from the Cowork space—it's the second largest Roman church in the world.
